@@ -1,0 +1,4 @@
+
+# LAWS EXPONENTS
+
+    - LAW 1: 
